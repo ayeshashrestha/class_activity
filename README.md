@@ -5,7 +5,7 @@
 
 **Who are you and what is your background?**
 
-My name is Ayesha Shrestha. I recently graduated from Monash University with a Bachelor's in Business. I majored in Economics and business strategy and minored in business marketing and management. I am originally from Nepal.
+My name is Ayesha Shrestha. I recently graduated from *Monash University* with a Bachelor's in Business. I majored in *Economics and business strategy* and minored in business marketing and management. I am originally from Nepal.
 
 ---
 
