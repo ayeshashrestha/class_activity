@@ -1,6 +1,6 @@
 # class_activity
 
-## Class activity *week 1 Day 3*
+## Class activity week 1 Day 3
 ---
 
 **Who are you and what is your background?**
