@@ -17,6 +17,6 @@ My current career goal is to become a financial analyst that engages in research
 
 **Why did you choose Fintech as a career path?**
 
-I believe that it is a blooming industry which as alot of potential to grow in Australia and other parts of the world that is going to cause a digital disruption and financial revolution with smart contracts, blockchain and cryptocurrencies. Besides finding it interesting, I wanted to ahead of the crowd in entering the industry.
+I believe that it is a blooming industry which has alot of potential to grow in Australia and other parts of the world that is going to cause a digital disruption and financial revolution with smart contracts, blockchain and cryptocurrencies. Besides finding it interesting, I wanted to ahead of the crowd in entering the industry.
 
 ---
